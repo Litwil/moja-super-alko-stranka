@@ -1,0 +1,1 @@
+# moja-super-alko-stranka
